@@ -62,7 +62,7 @@ href="[[[[https://whatsapp.com/channel/0029VangYOt96H4JhFarL10C](https://whatsap
   </a>
 
 
-Incase of any issues, contact me  [here](t.me/EmmyHenz) via WhatsApp.
+Incase of any issues, contact me  [here]0503293893via WhatsApp.
 
 Modifying the bot structure is at your own risk. We won't offer technical support if error occur.
 
